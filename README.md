@@ -50,4 +50,4 @@ I thrive on **creativity**, **problem-solving**, and pushing my limits with exci
 
 ---
 
-🟢 **Let’s connect and build something amazing together!**# bio
+🟢 **Let’s connect and build something amazing together!**
